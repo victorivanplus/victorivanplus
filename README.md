@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning on the new technologies of organization crm and joint platforms.
 - 💞️ I’m looking to collaborate on 
 Several Github projects where my talent and creativity are very useful.
-- 📫 How to reach me victorivanplus@live.com
+- 📫 How to reach me tipospublicidad1@yahoo.com
 
 <!---
 victorivanplus/victorivanplus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
